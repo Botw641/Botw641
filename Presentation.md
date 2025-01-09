@@ -1,4 +1,4 @@
-Hi, I’m Botw641
+Hi, I’m Hazy_Horizons (Botw641)
 I’m interested in modding games (SRB2, SM64...)
   and PS3 games ports.
 - I’m currently starting just now
