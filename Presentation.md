@@ -3,7 +3,7 @@ I’m interested in modding games (SRB2, SM64...)
   and PS3 games ports.
 - I’m currently starting just now
   so I'm a beginner.
-- how to reach me: DISCORD @Botw641
+- how to reach me: DISCORD @Hazy_Horizons
 - Pronouns: He/Him
 - Fun fact: I made a cool visual
   novel with python! (not released yet).
