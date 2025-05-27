@@ -1,4 +1,4 @@
-Hi, I’m Hazy_Horizons (Botw641)
+Hi, I’m YoriH (Botw641)
 And i’m interested in modding games (SRB2, SM64, FNF...)
 - I’m starting just now
   so I'm a beginner.
